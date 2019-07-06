@@ -1,1 +1,0 @@
-# SedrakyanGnel.github.io
